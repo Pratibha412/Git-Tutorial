@@ -1,2 +1,2 @@
 # Git-Tutorial
-it is for learning purpose (firsttime)yesssssssssssssss
+it is for learning purpose (firsttime)yessssss
